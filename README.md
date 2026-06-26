@@ -5,6 +5,7 @@
   </a>
   <img width="1536" height="2048" alt="https://www.tumblr.com/kirokumiku/814342810745618432/azul-ashengrotto-twst-vogue-cover-journal?source=share" src="https://github.com/user-attachments/assets/7f8c644b-d550-4431-a4ac-1ce26cd08e4a" /> 
 </p>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=5555&color=DDD9F7&vCenter=true&multiline=true&width=650&height=150&lines=%22Just+so+we're+clear-if+it+turns+out+Malleus+has;been+abducted+as+well%2C;.;I'm+running.%22++;Azul+said+with+great+exasperation." alt="Typing SVG" /></a>
 
 > [!warning]
 > Minors interact with caution.
