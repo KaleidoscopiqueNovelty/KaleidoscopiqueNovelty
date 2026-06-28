@@ -17,7 +17,8 @@
 <img width="100" height="21" alt="Image" src="https://github.com/user-attachments/assets/52312c68-d336-4781-b30d-3088e0bd40a6" />
 
 > [!warning]
-> Minors interact with caution.
+> 𝙸 𝚊𝚖 𝟺²+𝟸 𝚢𝚎𝚊𝚛𝚜 𝚘𝚕𝚍.
+> <br> 𝙼𝚒𝚗𝚘𝚛𝚜 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝 𝚠𝚒𝚝𝚑 𝚌𝚊𝚞𝚝𝚒𝚘𝚗.
 
 <p align="center">
   <img width="310" height="43" alt="Image" src="https://github.com/user-attachments/assets/75134b8d-fea5-45a6-943f-efe0a46d7d27"
